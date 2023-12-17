@@ -1,0 +1,1 @@
+- [AI can do your homework. Now what?](https://youtu.be/bEJ0_TVXh-I)
