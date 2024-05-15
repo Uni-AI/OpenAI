@@ -2,3 +2,4 @@
 - [The Future is Here: Open AI's NEW Physical GPT-5 ROBOT Neo Shocks the Entire Industry! (MUST WATCH)](https://youtu.be/Wjv3EMpX370)
 - [Open AI's GPTs](https://youtu.be/8Fqb4aw6E3s)
 - [INSANE OpenAI News: GPT-4o and your own AI partner](https://youtu.be/mvFTeAVMmAg)
+- [Chat GPT 4o Demo Video | #promotion #awareness](https://youtu.be/Sbou3NUHsgM)
