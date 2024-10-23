@@ -1,0 +1,1 @@
+- [OpenAI Researcher Dan Roberts on What Physics Can Teach Us About AI](https://youtu.be/XJsHIoIDhPY)
